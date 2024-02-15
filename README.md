@@ -5,6 +5,4 @@
 - 🌱 I’m currently learning ... C++
 - 💞️ I’m looking to collaborate on ... nothing specific yet
 - 📫 How to reach me ... mostly discord (welshea - obviously)
-- 😄 Pronouns: ... just call me Wel
-
 
